@@ -1,4 +1,4 @@
-
+Experience ink game like never before with premium ink game Script, the #1 Script. Includes silent aim and aimbot for unbeatable performance.
 
 
 
